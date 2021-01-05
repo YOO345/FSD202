@@ -1,4 +1,4 @@
 # FSD202
-Hello World.
+Hello Stranger.
 Get out of my place.
 Let me alone.
